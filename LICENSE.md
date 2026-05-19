@@ -1,4 +1,4 @@
-# 
+# Profissional Adobe Premiere Pro para PC plugins é o melhor Adobe Premiere Pro para PC plugins com mixagem de áudio e automação. Seguro, confiável e otimizado para máximo
 
 
 
